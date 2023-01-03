@@ -8,7 +8,7 @@
 # If you need a similar project for learning or real world product, Reach out to me here:
 
 ## EMAIL: mushlihun@live.com
-## SKYPE: lihunskype@live.com
+## SKYPE: lihunskype
 ## PHONE: +62881081993005
 
 <a href="https://naetoh.gumroad.com/l/taxicode" target="_blank">
