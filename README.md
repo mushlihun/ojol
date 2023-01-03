@@ -7,10 +7,9 @@
 
 # If you need a similar project for learning or real world product, Reach out to me here:
 
-## EMAIL: playstudio86@gmail.com
-## SKYPE: chndth@live.com
-## PHONE: +2347041684556
-## WHATSAPP: +2347089930308
+## EMAIL: mushlihun@live.com
+## SKYPE: lihunskype@live.com
+## PHONE: +62881081993005
 
 <a href="https://naetoh.gumroad.com/l/taxicode" target="_blank">
  <img src="https://user-images.githubusercontent.com/7928001/188195160-f6860a55-6a4f-419d-ae1f-8d801e9c8241.png" alt="Watch the video" width="auto" height="auto" border="10"/>
